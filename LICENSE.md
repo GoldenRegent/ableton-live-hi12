@@ -1,4 +1,4 @@
-# 
+# VIP Vegas Pro para PC scripts é o melhor Vegas Pro para PC scripts com captura multisfonte e exportação 4K. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
